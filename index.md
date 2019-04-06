@@ -1,4 +1,6 @@
-Jesus follower, runner, occasional writer. Interaction designer working on data things in the public sector (views my own).
+Christian, runner, occasional writer. 
+
+Interaction designer working on data things in the public sector (views my own).
 
 ### Writing about running
 
